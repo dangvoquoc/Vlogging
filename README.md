@@ -1,0 +1,2 @@
+# Vlogging
+some recommeded devices
